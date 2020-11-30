@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. McDonalds
+2. buffalo wild wings
+3. chili's
